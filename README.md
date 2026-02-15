@@ -1,0 +1,2 @@
+# Checkpoint1_avd
+Annisa Nayzhua Febriyani_2509116013_Sistem Informasi_2025
